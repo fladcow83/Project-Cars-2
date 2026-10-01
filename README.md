@@ -230,4 +230,4 @@ Project CARS 2 is available as a complete free version with all features and upd
 Don’t miss out on the adrenaline rush! Download Project CARS 2 free today and start your racing adventure!
 
 ---
-**Last updated:** 2026-10-01 14:59:58 UTC
+**Last updated:** 2026-10-01 20:16:50 UTC
